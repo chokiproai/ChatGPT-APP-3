@@ -3,7 +3,9 @@
 </h1>
 <hr>
 
-Thu thập các bản sao ChatGPT miễn phí trong nước, lời nhắc và các ứng dụng AI khác | Thu thập các bản sao ChatGPT miễn phí, các lựa chọn thay thế, lời nhắc, các ứng dụng AI khác, v.v.
+Thu thập các bản sao ChatGPT miễn phí trong nước, lời nhắc và các ứng dụng AI khác 
+                                                  | 
+Thu thập các bản sao ChatGPT miễn phí, các lựa chọn thay thế, lời nhắc, các ứng dụng AI khác, v.v.
  
  
  
@@ -20,7 +22,6 @@ Thu thập các bản sao ChatGPT miễn phí trong nước, lời nhắc và c�
 [ // ]: # (| 🤑 | Truy cập phải trả phí|)
  
 [ // ]: # (| 🎁 | Trả tiền để sử dụng, số lần dùng thử|)
-
 
 
 
@@ -100,7 +101,7 @@ Thu thập các bản sao ChatGPT miễn phí trong nước, lời nhắc và c�
     <td><img src="https://st.ai55.cc/favicon/default-chatgpt-favicon.svg" alt="favicon" style="height: 20px !important;width: 20px !important;" ></td>
     <td><a href="https://day0424.ai55.cc/url/?id=bzdHN29yMjhadllJQlRuVW1TZkZIbVB3eWsvNW90bmZXbGxseDJmeEVyZz0=" target="_blank"> Xjai.cc </a> </td>
     <td>😄</td>
-    <td>Vẽ AI miễn phí/GPT-3.5; GPT-4 trả phí</td> 
+    <td>免费AI绘画/GPT-3.5；付费GPT-4</td> 
     <td><a href="https://day0424.ai55.cc/url/?id=bzdHN29yMjhadllJQlRuVW1TZkZIbVB3eWsvNW90bmZXbGxseDJmeEVyZz0=" target="_blank">🔗 </a> </td> 
   </tr>
 
@@ -253,7 +254,7 @@ Thu thập các bản sao ChatGPT miễn phí trong nước, lời nhắc và c�
     <td><img src="https://st.ai55.cc/favicon/askme.mom.ico" alt="favicon" style="height: 20px !important;width: 20px !important;" ></td>
     <td><a href="https://day0424.ai55.cc/url/?id=amN5M2grUU9lNng2MENEL1RzR3lXUFFUVStTQkdPTHIvZ1czcXlRcURRcz0=" target="_blank"> Betai55.uk </a> </td>
     <td>😄</td>
-    <td>Mật khẩu: 586-481-535C</td> 
+    <td>密码：586-481-535C</td> 
     <td><a href="https://day0424.ai55.cc/url/?id=amN5M2grUU9lNng2MENEL1RzR3lXUFFUVStTQkdPTHIvZ1czcXlRcURRcz0=" target="_blank">🔗 </a> </td> 
   </tr>
 
@@ -532,7 +533,7 @@ Thu thập các bản sao ChatGPT miễn phí trong nước, lời nhắc và c�
     <td><img src="https://st.ai55.cc/favicon/chat.forefront.ai.png" alt="favicon" style="height: 20px !important;width: 20px !important;" ></td>
     <td><a href="https://day0424.ai55.cc/url/?id=MVdEaDQ3SXVlaWtNai9OWmlWUy9GUUJlMk5LRWNLY2VSTkxqdjFBTW1yOD0=" target="_blank"> Forefront.ai </a> </td>
     <td>🛫🔑😄</td>
-    <td>yêu cầu đăng nhập</td> 
+    <td>需要登陆</td> 
     <td><a href="https://day0424.ai55.cc/url/?id=MVdEaDQ3SXVlaWtNai9OWmlWUy9GUUJlMk5LRWNLY2VSTkxqdjFBTW1yOD0=" target="_blank">🔗 </a> </td> 
   </tr>
 
@@ -550,7 +551,7 @@ Thu thập các bản sao ChatGPT miễn phí trong nước, lời nhắc và c�
     <td><img src="https://st.ai55.cc/favicon/default2.ico" alt="favicon" style="height: 20px !important;width: 20px !important;" ></td>
     <td><a href="https://day0424.ai55.cc/url/?id=ZjRWWVNKbk1CRVYwakxtQ2p5WWw3TlU5eTdFc1ZmcWt1UW9LV2JRMmdMRT0=" target="_blank"> Manongzyg.one </a> </td>
     <td>🆕🔑</td>
-    <td>Theo dõi tài khoản chính thức để lấy mật khẩu</td> 
+    <td>关注公众号获取密码</td> 
     <td><a href="https://day0424.ai55.cc/url/?id=ZjRWWVNKbk1CRVYwakxtQ2p5WWw3TlU5eTdFc1ZmcWt1UW9LV2JRMmdMRT0=" target="_blank">🔗 </a> </td> 
   </tr>
 
@@ -595,7 +596,7 @@ Thu thập các bản sao ChatGPT miễn phí trong nước, lời nhắc và c�
     <td><img src="https://st.ai55.cc/favicon/default-chatgpt-favicon.svg" alt="favicon" style="height: 20px !important;width: 20px !important;" ></td>
     <td><a href="https://day0424.ai55.cc/url/?id=QTVJYnZ1Y1ZSQzBIZ1hNelc1cDZDWTdmMHBmYlo2R29OWGVlQlU4Z205TT0=" target="_blank"> New-bing.club </a> </td>
     <td>🆕🔑</td>
-    <td>3.5 miễn phí, GPT-4 trả phí</td> 
+    <td>免费3.5，付费GPT-4</td> 
     <td><a href="https://day0424.ai55.cc/url/?id=QTVJYnZ1Y1ZSQzBIZ1hNelc1cDZDWTdmMHBmYlo2R29OWGVlQlU4Z205TT0=" target="_blank">🔗 </a> </td> 
   </tr>
 
@@ -604,7 +605,7 @@ Thu thập các bản sao ChatGPT miễn phí trong nước, lời nhắc và c�
     <td><img src="https://st.ai55.cc/favicon/default-chatgpt-favicon.svg" alt="favicon" style="height: 20px !important;width: 20px !important;" ></td>
     <td><a href="https://day0424.ai55.cc/url/?id=Z0VLemZkSzRXeVVERkdhV1h1eU1lYk4zL2NPRkl3Vjh5T0hCdFo2aFVmND0=" target="_blank"> 1gpt.uk </a> </td>
     <td>🛫🔑</td>
-    <td>Mật khẩu: 4950602</td> 
+    <td>密码：4950602</td> 
     <td><a href="https://day0424.ai55.cc/url/?id=Z0VLemZkSzRXeVVERkdhV1h1eU1lYk4zL2NPRkl3Vjh5T0hCdFo2aFVmND0=" target="_blank">🔗 </a> </td> 
   </tr>
 
@@ -613,7 +614,7 @@ Thu thập các bản sao ChatGPT miễn phí trong nước, lời nhắc và c�
     <td><img src="https://favicon.zhusl.com/ico?url=gpt.zsqt.cc" alt="favicon" style="height: 20px !important;width: 20px !important;" ></td>
     <td><a href="https://day0424.ai55.cc/url/?id=eVlwdFUxeXdPNFU3M1VYb0ROMjhhQ29PK3l0V3hUY3hNeERpRit0YkVSWT0=" target="_blank"> Zsqt.cc </a> </td>
     <td>🔑</td>
-    <td>Theo dõi tài khoản chính thức để lấy mật khẩu</td> 
+    <td>关注公众号获取密码</td> 
     <td><a href="https://day0424.ai55.cc/url/?id=eVlwdFUxeXdPNFU3M1VYb0ROMjhhQ29PK3l0V3hUY3hNeERpRit0YkVSWT0=" target="_blank">🔗 </a> </td> 
   </tr>
 
@@ -1659,3 +1660,4 @@ Thu thập các bản sao ChatGPT miễn phí trong nước, lời nhắc và c�
 
 
 </details>
+
